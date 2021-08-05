@@ -1,2 +1,2 @@
 # gama-no-github
-# estou achando o curso incrível, muito informativogit statusgit status
+# estou achando o curso incrível, muito informativo!!!
